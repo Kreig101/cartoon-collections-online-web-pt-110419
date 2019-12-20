@@ -1,4 +1,4 @@
-derstanding t## Cartoon Collections
+## Cartoon Collections
 
 ## Objectives
 
